@@ -39,8 +39,8 @@ Me considero una persona curiosa, responsable y enfocada en resolver problemas. 
 
 ## 📫 Cómo contactarme
 
-*   **Email:** tu_correo@email.com
-*   **LinkedIn:** [linkedin.com/in/tu-usuario](https://linkedin.com)
+*   **Email:** baezyamilafurler@gmail.com
+  
 
 ---
 *Siempre dispuesta a aprender nuevas tecnologías y afrontar nuevos desafíos.*
